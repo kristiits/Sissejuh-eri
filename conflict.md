@@ -1,1 +1,1 @@
-Kirjuta siia üks lause
+Kirjuta siia üks lause (tudeng2 alt)
