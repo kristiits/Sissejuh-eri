@@ -1,1 +1,1 @@
-Kirjuta siia üks lause (Kristofer alt)
+Konflikti lahendamine.
